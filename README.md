@@ -1,4 +1,4 @@
-# VoidX
+# VoidX (⚠️READ LICENSE.MD BEFORE DOWNLOADING⚠️)
 Become a pro Roblox exploiter!
 
 ---
