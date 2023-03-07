@@ -2,9 +2,6 @@
 Become a pro Roblox exploiter!
 
 ---
-⚠️READ LICENSE.MD BEFORE DOWNLOADING⚠️
-
----
 Follow @ManiScripts on twitter!
 
 ---
